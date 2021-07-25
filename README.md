@@ -34,4 +34,5 @@ Dm7 Bb F C C#m7 Gm
 si no los conoces a si voy hacer el esfuerzo para poner bien los acordes
 
 
-perdon no puede poner bien los acordes pero los pueden buscar bien :D
+perdon no puede poner bien los acordes pero los pueden buscar bien :D saludos 
+desde hermosillo sonora 
