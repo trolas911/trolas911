@@ -36,3 +36,33 @@ si no los conoces a si voy hacer el esfuerzo para poner bien los acordes
 
 perdon no puede poner bien los acordes pero los pueden buscar bien :D saludos 
 desde hermosillo sonora 
+
+aqui les dejo la letra espero q les guste :D
+
+
+El tiempo se me va volando cuando me prendo un blunt
+Siempre tranquilón me la navego
+Lumbre al gallo le jalo y exhalo, me llena el pulmón
+El humito gris me está elevando
+Prendan las turbinas que me quiero subir al avión
+Cierro los ojos después un jalón
+A gusto siempre me verán que ando disfrutando
+Ramita verde que me pone la mente en blanco
+Cookies, voy llegando de lo mejor del mercado
+En un joint dorado me verán forjando
+Y puro DEL Records
+We gon' fuck shit up this 2020
+Shoutout to the homie Ruben
+Compa David
+Las pupilas dilatadas, bien sonámbulo ando yo
+2020 voy junto a mi clickón
+Vecinos preguntan de dónde sale el humaderón
+Es de mi cantón, estoy quemando
+Que soy mala influencia, que a sus hijos los voy a enviciar
+Si supieran que ellos la venden
+En el barrio me apodan los cholos "El rey verde"
+Ni un tostón se vende sin que yo lo pruebe
+Ahorita ando dando el rol despejando la mente
+Semáforo en verde, se va la Cheyenne
+
+Adios!!
